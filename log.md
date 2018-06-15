@@ -21,6 +21,9 @@
 - Carpooling
 - Language
 
+**Tweet**: R1D1 for #100DaysOfGratitude.  It is hard to call out what I am most grateful for, but today
+especially, I am grateful for teams, Slack, carpooling, language and cookies from Sweet Tooth Fairy #100DaysOfX 
+
 [Table of Contents](#toc)
 
 
