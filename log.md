@@ -5,6 +5,8 @@
 |Day|Comments|
 |:---:|:-----:|
 |[Day 1](#day-1) **06/14/2018**| Teams, Sweet Tooth Fairy, Slack, Carpooling, Language |
+|[Day 2](#day-2) **06/15/2018**| Kid Playplaces, Hammers, Utility Knifes, Floor Scrapers, Healthy Days |
+
 <!--- 
 |[Day 1](#day-1) **--/--/--**| Topics |
 --->
@@ -26,7 +28,23 @@ especially, I am grateful for teams, Slack, carpooling, language and cookies fro
 
 [Table of Contents](#toc)
 
+----------
+<a name="day-2"></a>
+### Day 2: June 15, 2018
 
+**Today's Items**: 
+
+- Kid Playplaces
+- Hammers
+- Utility Knifes
+- Floor scrapers
+- Healthy Days
+
+**Tweet**:  R1D2 for #100DaysOfGratitude. I love taking my kids to any playplace and watching them run around, I am also
+grateful for tools (hammer, utility knife, floor scraper) and how they help tasks to be completed. Finally I'm
+grateful for days that you just feel good. #100DaysOfX    
+
+[Table of Contents](#toc)
 
 <!---
 Entry template
