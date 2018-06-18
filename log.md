@@ -6,6 +6,9 @@
 |:---:|:-----:|
 |[Day 1](#day-1) **06/14/2018**| Teams, Sweet Tooth Fairy, Slack, Carpooling, Language |
 |[Day 2](#day-2) **06/15/2018**| Kid Playplaces, Hammers, Utility Knifes, Floor Scrapers, Healthy Days |
+|[Day 3](#day-3) **06/16/2018**| 80's music, T-Ball, Waterballons, Showers and Friends who help on projects |
+|[Day 4](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
+
 
 <!--- 
 |[Day 1](#day-1) **--/--/--**| Topics |
@@ -45,6 +48,51 @@ grateful for tools (hammer, utility knife, floor scraper) and how they help task
 grateful for days that you just feel good. #100DaysOfX    
 
 [Table of Contents](#toc)
+
+----------
+<a name="day-3"></a>
+### Day 3: June 16, 2018
+
+**Today's Items**
+
+- Friends who help complete projects
+- 80's music
+- T-ball
+- Waterballoons
+- Showers
+
+**Thoughts**: 
+
+I am so grateful today for all those who are willing to give of their time and knowledge to help me
+in projects that I am need done.  Music is another big one to me, and today I really want to say how
+thankful I am for Rock from the 80s.  I also am so glad my son is playing T-ball and that he loves
+to play sports.  Finally I love being able to have waterballoon fights with my family, and to take
+the shower that is usually needed afters.  
+
+[Table of Contents](#toc)
+
+----------
+<a name="day-4"></a>
+### Day 4: January 4, 2018
+
+**Today's Items**: 
+
+- Father's of course
+-   Grandfather
+-   Father
+-   Father-in-law
+- Chance to be a father
+
+**Thoughts**: 
+
+Today is obviously one of those very special days.  The day that we can reflect on someone who has
+been able to fill a role in our life. I am so grateful for my father, as well as the other father
+figures that I have had in my life since birth.  Without these wonderful men I would not be the man
+I am today.  I am also very grateful for the chance I have to be a father, to be given children who
+I can love and I can raise.  
+
+[Table of Contents](#toc)
+
 
 <!---
 Entry template
