@@ -8,6 +8,7 @@
 |[Day 2](#day-2) **06/15/2018**| Kid Playplaces, Hammers, Utility Knifes, Floor Scrapers, Healthy Days |
 |[Day 3](#day-3) **06/16/2018**| 80's music, T-Ball, Waterballons, Showers and Friends who help on projects |
 |[Day 4](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
+|[Day 5](#day-5) **06/18/2018**| Volleyball, Trampoline, Guitars, Washes and Smiths |
 
 
 <!--- 
@@ -90,6 +91,24 @@ been able to fill a role in our life. I am so grateful for my father, as well as
 figures that I have had in my life since birth.  Without these wonderful men I would not be the man
 I am today.  I am also very grateful for the chance I have to be a father, to be given children who
 I can love and I can raise.  
+
+[Table of Contents](#toc)
+
+----------
+<a name="day-5"></a>
+### Day 5: June 18, 2018
+
+**Today's Items**: 
+
+- Volleyball
+- Tampoline
+- Guitars
+- Washes
+- Smiths
+
+**Thoughts**: Today was a very nice day, with a couple of my kids starting some volleyball practice I was grateful the sport
+is there for them.  I also love jumping on the Trampoline with my son and playing guitar with my friends.  Finally for having
+a grocery store like Smith's close by (with a car wash) that I can quickly get the items needed for dinner. 
 
 [Table of Contents](#toc)
 
