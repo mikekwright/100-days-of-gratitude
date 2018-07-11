@@ -9,6 +9,7 @@
 |[Day 3](#day-3) **06/16/2018**| 80's music, T-Ball, Waterballons, Showers and Friends who help on projects |
 |[Day 4](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
 |[Day 5](#day-5) **06/18/2018**| Volleyball, Trampoline, Guitars, Washes and Smiths |
+|[Day 6](#day-6) **07/10/2018**| Texas, Whataburger, Old Photos, Monuments and Taco Cabana |
 
 
 <!--- 
@@ -112,6 +113,25 @@ a grocery store like Smith's close by (with a car wash) that I can quickly get t
 
 [Table of Contents](#toc)
 
+----------
+<a name="day-6"></a>
+### Day 6: July 10, 2018
+
+**Today's Items**: 
+
+- Texas
+- Whataburger
+- Old Photos
+- Monuments
+- Taco Cabana
+
+**Thoughts**: Well it has been a while since I have been able to jump online to entry these items (summer
+gets tuff with vacations).  But I had a chance to visit some family in San Antonio and I am just thankful
+for the area, how nice it is and the friendly people that are there.  I am also grateful for Whataburger which
+was always a fun place to eat at.  I also am grateful for places that we can try to find with monuments for us
+to see.  
+
+[Table of Contents](#toc)
 
 <!---
 Entry template
