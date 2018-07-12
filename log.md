@@ -10,6 +10,7 @@
 |[Day 4](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
 |[Day 5](#day-5) **06/18/2018**| Volleyball, Trampoline, Guitars, Washes and Smiths |
 |[Day 6](#day-6) **07/10/2018**| Texas, Whataburger, Old Photos, Monuments and Taco Cabana |
+|[Day 7](#day-6) **07/11/2018**| Mirrors, Stories, Pictures, Christ and Love |
 
 
 <!--- 
@@ -132,6 +133,26 @@ was always a fun place to eat at.  I also am grateful for places that we can try
 to see.  
 
 [Table of Contents](#toc)
+
+----------
+<a name="day-7"></a>
+### Day 7: July 11, 2018
+
+**Today's Items**: 
+
+- Mirrors
+- Stories
+- Pictures
+- Christ
+- Love
+
+**Thoughts**: I just want to express my gratitude especially for Christ and all that he
+has done, how the teachings I have received from him have changed and directed my life and
+the happiness it has brought.  I also want to truly express my gratitude for the emotion of
+Love and how grateful I am for all the people in my life who share their love and kindness. 
+
+[Table of Contents](#toc)
+
 
 <!---
 Entry template
