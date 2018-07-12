@@ -4,13 +4,13 @@
 ### Overview
 |Day|Comments|
 |:---:|:-----:|
-|[Day 1](#day-1) **06/14/2018**| Teams, Sweet Tooth Fairy, Slack, Carpooling, Language |
-|[Day 2](#day-2) **06/15/2018**| Kid Playplaces, Hammers, Utility Knifes, Floor Scrapers, Healthy Days |
-|[Day 3](#day-3) **06/16/2018**| 80's music, T-Ball, Waterballons, Showers and Friends who help on projects |
-|[Day 4](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
-|[Day 5](#day-5) **06/18/2018**| Volleyball, Trampoline, Guitars, Washes and Smiths |
-|[Day 6](#day-6) **07/10/2018**| Texas, Whataburger, Old Photos, Monuments and Taco Cabana |
-|[Day 7](#day-6) **07/11/2018**| Mirrors, Stories, Pictures, Christ and Love |
+|[Day 1:](#day-1) **06/14/2018**| Teams, Sweet Tooth Fairy, Slack, Carpooling, Language |
+|[Day 2:](#day-2) **06/15/2018**| Kid Playplaces, Hammers, Utility Knifes, Floor Scrapers, Healthy Days |
+|[Day 3:](#day-3) **06/16/2018**| 80's music, T-Ball, Waterballons, Showers and Friends who help on projects |
+|[Day 4:](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
+|[Day 5:](#day-5) **06/18/2018**| Volleyball, Trampoline, Guitars, Washes and Smiths |
+|[Day 6:](#day-6) **07/10/2018**| Texas, Whataburger, Old Photos, Monuments and Taco Cabana |
+|[Day 7:](#day-6) **07/11/2018**| Mirrors, Stories, Pictures, Christ and Love |
 
 
 <!--- 
