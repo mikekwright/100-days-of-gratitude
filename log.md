@@ -10,11 +10,14 @@
 |[Day 4:](#day-4) **06/17/2018**| Father figures, chance to be a father myself |
 |[Day 5:](#day-5) **06/18/2018**| Volleyball, Trampoline, Guitars, Washes and Smiths |
 |[Day 6:](#day-6) **07/10/2018**| Texas, Whataburger, Old Photos, Monuments and Taco Cabana |
-|[Day 7:](#day-6) **07/11/2018**| Mirrors, Stories, Pictures, Christ and Love |
+|[Day 7:](#day-7) **07/11/2018**| Mirrors, Stories, Pictures, Christ and Love |
+|[Day 8:](#day-8) **07/12/2018**| Supermarkets, Youtube guides, Medicines, Patience and King of Queens |
+|[Day 9:](#day-9) **07/13/2018**| Pavilions, Pizza, Old Songs, Tire Swings and Ranchers |
+|[Day 10:](#day-10) **07/14/2018**| Denny's, Dryers, WiFi, Neighborhood Parties and Couch Holders |
 
 
 <!--- 
-|[Day 1](#day-1) **--/--/--**| Topics |
+|[Day 1:](#day-1) **--/--/--**| Topics |
 --->
 
 ----------
@@ -152,6 +155,68 @@ the happiness it has brought.  I also want to truly express my gratitude for the
 Love and how grateful I am for all the people in my life who share their love and kindness. 
 
 [Table of Contents](#toc)
+
+----------
+<a name="day-8"></a>
+### Day 8: July 12, 2018
+
+**Today's Items**: 
+
+- Supermarkets
+- Youtube guides
+- Medicines
+- Patience 
+- King of Queens
+
+**Thoughts**: Today was a little bit of a tuff day at home, but I am just so grateful that we
+live so close to supermarkets that can provide the items we need, as well as for those people who
+take the time to share their thoughts and teachings with the rest of us through mediums like Youtube.
+Also really enjoy the King of Queens show, my wife and I often sit and watch re-runs together
+to relax.
+
+[Table of Contents](#toc)
+
+----------
+<a name="day-9"></a>
+### Day 9: July 13, 2018
+
+**Today's Items**: 
+
+- Pavilions
+- Pizza
+- Old Songs
+- Tire Swings 
+- Ranchers
+
+**Thoughts**: What an exciting day!  Had a change to get together with a number of friends and
+family to celebrate my Father's birthday.  It was nice to have a place at a park big enough for
+us, as well as the fun time we had singing an old song to him (on from our youth).  The final item
+is that Garett was able to start a dream job of his working as a hand for a Ranch that just opened
+up.  
+
+[Table of Contents](#toc)
+
+----------
+<a name="day-10"></a>
+### Day 10: July 14, 2018
+
+**Today's Items**: 
+
+- Denny's
+- Dryers
+- WiFi 
+- Neighborhood Parties 
+- Couch Holders 
+
+**Thoughts**: What a busy Saturday today.  Had a lot to do, but am grateful for Wifi and its ability
+to let us connect a lot of things easily to the web.  We also have the best neighborhood, were they
+setup a great summer activity each year, while I wasn't able to personally attend, my daughter had
+a wonderful time.  I am also grateful for finding little items that can hold our couch in place.  We
+recently installed flooring and our couches were sliding all over the place when people sat on them
+but now they stay still!    
+
+[Table of Contents](#toc)
+
 
 
 <!---
