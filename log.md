@@ -14,6 +14,7 @@
 |[Day 8:](#day-8) **07/12/2018**| Supermarkets, Youtube guides, Medicines, Patience and King of Queens |
 |[Day 9:](#day-9) **07/13/2018**| Pavilions, Pizza, Old Songs, Tire Swings and Ranchers |
 |[Day 10:](#day-10) **07/14/2018**| Denny's, Dryers, WiFi, Neighborhood Parties and Couch Holders |
+|[Day 11:](#day-11) **07/15/2018**| My Dad |
 
 
 <!--- 
@@ -214,6 +215,26 @@ setup a great summer activity each year, while I wasn't able to personally atten
 a wonderful time.  I am also grateful for finding little items that can hold our couch in place.  We
 recently installed flooring and our couches were sliding all over the place when people sat on them
 but now they stay still!    
+
+[Table of Contents](#toc)
+
+----------
+<a name="day-10"></a>
+### Day 11: July 15, 2018
+
+**Today's Items**: 
+
+- My Dad
+
+**Thoughts**: As I have been going through this challenge, there has been one thing that seems to
+have come to my attention.  I feel that, having 5 things every day, sometime detours from the specific
+amounts of gratitude that I have for any one of those specific items.  With that in mind I might just
+share anywhere from 1 to 5 different things that I am grateful for, depending on how important and
+thankful I am for the specified items.  My father's birthday was pretty recent, but today he stopped
+by my home to drop a gift off for my daughter.  He is really an amazing man who spends all his time
+with his family and showing the love and kindness that he has for them.  I honeslty am so grateful
+for the example that he gave me growing up, and still gives me everytime I see him.  I know that I 
+still have a lot of growing to do, but I believe that he has made a hug impact on me for the better. 
 
 [Table of Contents](#toc)
 
