@@ -15,6 +15,7 @@
 |[Day 9:](#day-9) **07/13/2018**| Pavilions, Pizza, Old Songs, Tire Swings and Ranchers |
 |[Day 10:](#day-10) **07/14/2018**| Denny's, Dryers, WiFi, Neighborhood Parties and Couch Holders |
 |[Day 11:](#day-11) **07/15/2018**| My Dad |
+|[Day 12:](#day-12) **07/16/2018**| Weeds, Grass and Hard Work |
 
 
 <!--- 
@@ -219,7 +220,7 @@ but now they stay still!
 [Table of Contents](#toc)
 
 ----------
-<a name="day-10"></a>
+<a name="day-11"></a>
 ### Day 11: July 15, 2018
 
 **Today's Items**: 
@@ -238,6 +239,23 @@ still have a lot of growing to do, but I believe that he has made a hug impact o
 
 [Table of Contents](#toc)
 
+----------
+<a name="day-12"></a>
+### Day 12: July 16, 2018
+
+**Today's Items**: 
+
+- Weeds
+- Grass
+- Hard Work
+
+**Thoughts**: This might be an odd thing to be grateful for, however I find that 
+there is something gratifying about doing some hard work in the yard and especially
+when I get my kids out to help.  I think that there is to much focus today on making
+things easier, but life is supposed to require work, so I hope I can impart the
+ability to know how to work hard and find joy in work to my kids.  
+
+[Table of Contents](#toc)
 
 
 <!---
